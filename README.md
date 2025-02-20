@@ -1,5 +1,5 @@
-# 💫 About Me:
-Student At Rcoem <br>Android App developer 
+# 💫 Hi 🖐️ I Am Varun Pradip Sukalkar 
+prefinal year Student At Rcoem <br>Android App developer 
 
 
 ## 🌐 Socials:
